@@ -14,3 +14,4 @@
 # Note
 *core is better than origanal bot Ticket and almost*
  
+que gay xd
