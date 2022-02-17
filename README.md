@@ -13,4 +13,6 @@
 
 # Note
 *core is better than origanal bot Ticket and almost*
+
+gay deja de hacer bots y ponge a trabajar
  
